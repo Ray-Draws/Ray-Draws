@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Ray-Draws
+- 👋 Hi, I’m Ray / Sharayna
 - 👀 I’m interested in ... 👀
-- 🌱 I’m currently learning ... what the fuck im doing
-- 💞️ I’m looking to collaborate on ... things
+- 🌱 I’m currently learning ... whatever the fuck it is i'm doing
+- 💞️ I’m looking to collaborate on ... FNF mods I guess? I can basically only arrange vocals lol
 - 📫 How to reach me ... twitter @DrawsRay / discord Sharayna#8632
 
 <!---
